@@ -1,0 +1,1 @@
+# Kollazs-orarend-zaszlo-nev
